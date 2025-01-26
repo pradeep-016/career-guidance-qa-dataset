@@ -34,5 +34,5 @@ Contributions are welcome! If you'd like to add new roles, questions, or improve
 
 ## Contact
 
-For questions or suggestions, feel free to open an issue or [contact us](pradeep02272002@gmail.com) directly.
+For questions or suggestions, feel free to open an issue or [contact us](https://www.linkedin.com/in/pradeep016/) directly.
 
